@@ -72,3 +72,7 @@ Therefore, it is easy to say that: sharks hate english-speakers, and consequentl
 ## Conclusion
 
 If you support FC Barcelona, you are not Joe Biden, you have played Minecraft and you are not understanding this text (you don't speak english), it is my pleasure to inform you that your life will be a little easier. 
+
+## Presentation
+
+https://www.canva.com/design/DAFx_1C4vjg/1TflDNNo5S2TZIROlc4o-w/edit?utm_content=DAFx_1C4vjg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
